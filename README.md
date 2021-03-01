@@ -3,7 +3,7 @@
 ## Introduction
 
 Hello stranger, welcome to my profile page!
-I don't know what you expect to find here, but I hope you're looking for.
+I don't know what you expect to find here, but I hope you find what you're looking for.
 
 ## About Me
 
